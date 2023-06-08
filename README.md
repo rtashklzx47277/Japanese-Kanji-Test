@@ -1,0 +1,2 @@
+# Japanese Kanji Test
+ 
